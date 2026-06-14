@@ -5,7 +5,7 @@
 <img alt="GitHub followers" src="https://img.shields.io/github/followers/winterprisonn?style=flat&label=moths&labelColor=EFD6C5&color=EFD6C5">
 <p align="center">
 
-<p align="center"> sakisara⠀⠀15yo⠀⠀cupio-aroace⠀⠀adhd
+<p align="center"> sakisara⠀⠀16yo⠀⠀electio-aroace⠀⠀adhd
 
 <p align="center"> <img src="https://files.catbox.moe/sgub3i.png" alt="pray the light will save you" />
 
